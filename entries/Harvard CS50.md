@@ -1,0 +1,1 @@
+CS50's innovative approach to teaching computer science has made it a popular choice for learners worldwide, with its impact extending far beyond the walls of Harvard University.
